@@ -1,3 +1,3 @@
-- C# develop
+- C# developer
 - vk: vk.com/maass78
 - tg: t.me/maass78
